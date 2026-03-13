@@ -1,1 +1,1 @@
-# Kaima-natural-clothimg
+# Kaima-natural-clothing
