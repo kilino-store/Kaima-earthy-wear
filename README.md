@@ -1,1 +1,1 @@
-# Kaima-earthy-wear
+# Kaima-natural-clothimg
